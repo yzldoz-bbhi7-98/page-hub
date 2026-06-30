@@ -1,0 +1,2 @@
+# page-hub
+SEO content
